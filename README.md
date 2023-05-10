@@ -3,16 +3,16 @@
 
 ---  
 
-## ✅ Design & Engineering Excellence ⚙️
+#### ✅ Design & Engineering Excellence ⚙️
 Intelligent software development meets state-of-the-art mechanical electical design and engineering. I'm all about keeping the 'big picture' in mind and ensuring that every project I undertake is an investment in your organization's future that will pay dividends for years to come.
 
-## ✅ Pro Project Management 📋 
+#### ✅ Pro Project Management 📋 
 With a track record of delivering successful projects that drive significant impact on organizations' balance sheets. Whether you're looking to reduce costs, increase revenue, or both, I've got you covered.
 
-## ✅ Strategic Sustainabilty 🌎  
+#### ✅ Strategic Sustainabilty 🌎  
 Intelligent & sustainable design makes a real difference where it is needed most and is an investment in your future. 
 
-## ✅ $100K+ value added to balance sheet (annually) 📈🚀
+#### ✅ $100K+ value added to balance sheet (annually) 📈🚀
 Consistently delivering measurable and tangible value to my clients sets me apart. If you're a looking to achieve sustainable success across product design, operations, finance, and quality assurance, I'm your guy. Let's work together to drive your organization's growth & make a positive impact on the world.
 
 ## Let's Connect!
