@@ -19,8 +19,8 @@ Consistently delivering measurable and tangible value to my clients sets me apar
 If you're interested in working together, feel free to reach out to me. I'm always happy to chat with like-minded professionals who are passionate about driving sustainable growth through innovation and excellence.
 
 [Twitter - @2overengineered](https://twitter.com/2overengineered)  
-[LinkedIn - @2overengineered](https://www.linkedin.com/in/2overengineered/)  
-[Instagram - @2overengineered](https://www.instagram.com/2overengineered/)  
+[LinkedIn - in/2overengineered](https://www.linkedin.com/in/2overengineered/)  
+[Instagram - 2overengineered](https://www.instagram.com/2overengineered/)  
 [Reddit - u/2overengineered](https://www.reddit.com/user/2overengineered)  
 
 
