@@ -1,22 +1,31 @@
-# Hello World! I'm Joseph Shaw 📈🚀  
-### I help organizations achieve sustainable growth through design excellence, quality management, & intelligent software development.
+### Hello World! I'm Joseph Shaw 📈🚀
 
----  
+#### I help organizations achieve sustainable growth through design excellence, quality management, and innovative software development.  
+
+---
 
 #### ✅ Design & Engineering Excellence ⚙️
-Intelligent software development meets state-of-the-art mechanical electical design and engineering. I'm all about keeping the 'big picture' in mind and ensuring that every project I undertake is an investment in your organization's future that will pay dividends for years to come.
 
-#### ✅ Pro Project Management 📋 
-With a track record of delivering successful projects that drive significant impact on organizations' balance sheets. Whether you're looking to reduce costs, increase revenue, or both, I've got you covered.
+State-of-the-art mechanical/electrical design & engineering meets innovative software development for solutions that deliver results. Keeping the 'big picture' in mind, I ensure that every project is an investment in your organization's future that will pay dividends for years to come.
 
-#### ✅ Strategic Sustainabilty 🌎  
-Intelligent & sustainable design makes a real difference where it is needed most and is an investment in your future. 
+#### ✅ Quality Project Management 📋 
 
-#### ✅ $100K+ value added to balance sheet (annually) 📈🚀
-Consistently delivering measurable and tangible value to my clients sets me apart. If you're a looking to achieve sustainable success across product design, operations, finance, and quality assurance, I'm your guy. Let's work together to drive your organization's growth & make a positive impact on the world.
+With a track record of delivering successful projects that drive significant impact on organizations' balance sheets, I have the project management skills to help you achieve your goals. The projects I manage are completed on time, within budget, and to a high quality standard. 
 
-## Let's Connect!
-If you're interested in working together, feel free to reach out to me. I'm always happy to chat with like-minded professionals who are passionate about driving sustainable growth through innovation and excellence.
+#### ✅ Strategic Sustainability 🌎  
+
+Sustainability is a critical factor for any organization's long-term success; a focus on sustainable design makes a real difference where it is needed most. Sustainability is not just an ethical concern, but also a strategic one. Organizations that invest in sustainable practices will:  
+ - reduce costs,
+ - build brand equity, &
+ - attract customers who are increasingly conscious of their environmental impact.  
+
+#### ✅ $100K+ Value Added to Balance Sheet (Annually) 📈🚀
+
+My partners & clients consistently see measurable and tangible value added to their balance sheets. I'm dedicated to helping organizations achieve sustainable success across product design, operations, finance, & quality assurance.
+
+### Let's Connect!
+
+If you're interested, don't hesitate to reach out to me. I'm always happy to chat with like-minded professionals who are passionate about driving sustainable growth through innovation and excellence.
 
 [Twitter - @2overengineered](https://twitter.com/2overengineered)  
 [LinkedIn - in/2overengineered](https://www.linkedin.com/in/2overengineered/)  
