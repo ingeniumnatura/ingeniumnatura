@@ -1,4 +1,5 @@
-# Inspire innovation. 🌍 Design your strategic path to sustainable growth. 📈
+# Inspire innovation. 
+## 🌍 Design your strategic path to sustainable growth. 📈
 
 ---
 
