@@ -1,6 +1,4 @@
-### Hello World! I'm Joseph Shaw 📈🚀
-
-#### I help organizations achieve sustainable growth through design excellence, quality management, and innovative software development.  
+### Inspire innovation. 🌍 Design your strategic path to sustainable growth. 📈
 
 ---
 
