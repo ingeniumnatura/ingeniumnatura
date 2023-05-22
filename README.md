@@ -1,13 +1,10 @@
-# Inspire innovation. 
-## 🌍 Design your strategic path to sustainable growth. 📈
-
----
+# Hello World! I'm Joseph Shaw
 
 #### ✅ Design & Engineering Excellence ⚙️
 
 State-of-the-art mechanical/electrical design & engineering meets innovative software development for solutions that deliver results. Keeping the 'big picture' in mind, I ensure that every project is an investment in your organization's future that will pay dividends for years to come.
 
-#### ✅ Quality Project Management 📋 
+#### ✅ Project Management Pro 📋 
 
 With a track record of delivering successful projects that drive significant impact on organizations' balance sheets, I have the project management skills to help you achieve your goals. The projects I manage are completed on time, within budget, and to a high quality standard. 
 
