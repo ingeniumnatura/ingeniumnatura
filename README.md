@@ -1,10 +1,10 @@
 # Inspire innovation.
 
-### ✅ Design Excellence ⚙️
+### Design Excellence ⚙️
 
 Advanced mechanical & electrical engineering meets innovative software development. Strategic investments in technology pay dividends for years to come.
 
-### ✅ Project Management Pro 📋 
+### Project Management Pro 📋 
 
 Successful projects drive significant impacts on your organization's balance sheet. Achieve strategic goals on time & within budget while following internationally recognized standards.
 
@@ -12,11 +12,11 @@ Successful projects drive significant impacts on your organization's balance she
 
 # Design your strategic path to sustainable growth.
 
-### ✅ A Sustainable Strategy 🌎  
+### A Sustainable Strategy 🌎  
 
 Sustainability is more than just ethical, it's a critical factor for any organization's long-term success. Sustainable practices reduce costs, build brand equity, and attract increasingly conscious customers.  
 
-#### ✅ Add $100K+ to Your Balance Sheet Annually 📈🚀
+### Add $100K+ to Your Balance Sheet Annually 📈🚀
 
 My partners & clients consistently see measurable and tangible value added to their balance sheets. I'm dedicated to helping organizations achieve sustainable success across product design, operations, finance, & quality assurance.
 
