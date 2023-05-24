@@ -8,9 +8,8 @@ Advanced mechanical & electrical engineering meets innovative software developme
 
 Successful projects drive significant impacts on your organization's balance sheet. Achieve strategic goals on time & within budget while following internationally recognized standards.
 
----
 
-# Design your strategic path to sustainable growth.
+# Design a strategy for sustainable growth. 
 
 ### A Sustainable Strategy 🌎  
 
