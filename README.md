@@ -1,21 +1,22 @@
-# Hello World! I'm Joseph Shaw
+# Inspire innovation.
 
-#### ✅ Design & Engineering Excellence ⚙️
+### ✅ Design Excellence ⚙️
 
-State-of-the-art mechanical/electrical design & engineering meets innovative software development for solutions that deliver results. Keeping the 'big picture' in mind, I ensure that every project is an investment in your organization's future that will pay dividends for years to come.
+Advanced mechanical & electrical engineering meets innovative software development. Strategic investments in technology pay dividends for years to come.
 
-#### ✅ Project Management Pro 📋 
+### ✅ Project Management Pro 📋 
 
-With a track record of delivering successful projects that drive significant impact on organizations' balance sheets, I have the project management skills to help you achieve your goals. The projects I manage are completed on time, within budget, and to a high quality standard. 
+Successful projects drive significant impacts on your organization's balance sheet. Achieve strategic goals on time & within budget while following internationally recognized standards.
 
-#### ✅ Strategic Sustainability 🌎  
+---
 
-Sustainability is a critical factor for any organization's long-term success; a focus on sustainable design makes a real difference where it is needed most. Sustainability is not just an ethical concern, but also a strategic one. Organizations that invest in sustainable practices will:  
- - reduce costs,
- - build brand equity, &
- - attract customers who are increasingly conscious of their environmental impact.  
+# Design your strategic path to sustainable growth.
 
-#### ✅ $100K+ Value Added to Balance Sheet (Annually) 📈🚀
+### ✅ A Sustainable Strategy 🌎  
+
+Sustainability is more than just ethical, it's a critical factor for any organization's long-term success. Sustainable practices reduce costs, build brand equity, and attract increasingly conscious customers.  
+
+#### ✅ Add $100K+ to Your Balance Sheet Annually 📈🚀
 
 My partners & clients consistently see measurable and tangible value added to their balance sheets. I'm dedicated to helping organizations achieve sustainable success across product design, operations, finance, & quality assurance.
 
